@@ -1,0 +1,1 @@
+No Content: https://www.kurd4u.com/js/link.js
